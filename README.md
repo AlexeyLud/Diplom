@@ -1,2 +1,2 @@
-# Diplom
-team work on graduation project
+# Diplom💀
+team work on graduation project📱
